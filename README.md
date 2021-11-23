@@ -1,11 +1,11 @@
-### Hi there 👋 ###
+### Hi  ###
 #### ***I AM RAMPRASAD*** ####
 ##    *_I AM FROM ADITYA_* ##
 - 🌱 I’m currently learning coding
 - 👯 I’m looking to collaborate with you
-- 💬 Ask me anything
+- 💬 Ask me anything but i won't tell you lol😅
 - 📫 through email you can reach me: vasudevarao.muppana@gmail.com          
-                          instagram : _______2002__(every 14 days oakti 😆😆)
+                          instagram : _______2002__(every 14 days okati 😆😆)
 - 😆 Happy ga undandi prnds....
 - ⚡ Fun fact: I AM LAZY
 -  ⚡ DIE HARD FAN OF THESE GUY
