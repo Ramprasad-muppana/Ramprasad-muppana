@@ -8,4 +8,8 @@
 - ⚡ Fun fact: I AM LAZY
 -  ⚡ DIE HARD FAN OF THESE GUY
 -  
-[![image](https://user-images.githubusercontent.com/83056522/142842855-2860e9ec-9490-4493-bb65-fe95d4535cce.png)]
+![image](https://user-images.githubusercontent.com/83056522/142842855-2860e9ec-9490-4493-bb65-fe95d4535cce.png)]
+
+ 
+ 
+ [google](https://user-images.githubusercontent.com/83056522/142842855-2860e9ec-9490-4493-bb65-fe95d4535cce.png)
