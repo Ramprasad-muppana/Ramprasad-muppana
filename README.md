@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate with you
 - 💬 Ask me anything
 - 📫 through email you can reach me: vasudevarao.muppana@gamil.com
--                           instagram : _______2002__(every 14 days oakti 😆😆)
+-                        instagram : _______2002__(every 14 days oakti 😆😆)
 - 😆 Happy ga undandi prnds....
 - ⚡ Fun fact: I AM LAZY
 -  ⚡ DIE HARD FAN OF THESE GUY
